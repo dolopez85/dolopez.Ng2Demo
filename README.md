@@ -1,1 +1,0 @@
-# dolopez.Ng2Demo
